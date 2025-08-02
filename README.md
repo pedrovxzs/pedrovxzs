@@ -1,4 +1,4 @@
-👋 Olá! Eu sou Pedro V. M. Sampaio
+👋 Olá! Sou Pedro Vittor.
 
 🎓 Universitário de Ciência da Computação na Universidade Federal do Ceará (UFC)  
 🤖 Bolsista BIA | Pesquisador em Educação 5.0 e uso da I.A na educação  
